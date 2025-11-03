@@ -1,1 +1,1 @@
-https://github.com/CyberArt2718281/ono-tebe-nado
+https://github.com/slobodskoy-a-a/yandex-practicum
