@@ -1,1 +1,1 @@
-https://github.com/slobodskoy-a-a/yandex-practicum
+https://github.com/slobodskoy-a-a/ono-tebe-nado
