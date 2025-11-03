@@ -1,1 +1,1 @@
-https://github.com/slobodskoy-a-a/ono-tebe-nado
+https://github.com/slobodskoy-a-a/ono-tebe-nado-ad
